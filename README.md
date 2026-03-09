@@ -1,2 +1,0 @@
-# NewEnglishSchoolMalthan
-Admission 
